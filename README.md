@@ -1,5 +1,5 @@
 ## 🎧🍥🐈
 
 
-![](![image](https://github.com/user-attachments/assets/22e84f09-f571-4000-9910-bc37ace5611f)
-)
+![](![image](https://github.com/user-attachments/assets/78d8149a-6eec-4c82-9ffc-166425ff0f3d)
+
